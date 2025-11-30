@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on some tools for pc<br>🌱 I’m currently learning coding<br>💬 Ask me about anything<br>goodbye!
+🔭 I’m currently working on some tools for pc<br>🌱 I’m currently learning coding<br>💬 Ask me about anything<br>goodbye
 
 
 ## 🌐 Socials:
